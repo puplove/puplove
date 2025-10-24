@@ -2,9 +2,7 @@
 
  ![](https://komarev.com/ghpvc/?username=wandering-eye&abbreviated=trueey&color=ff69b4)
 
-  <div align='center'> 
-
- <img src="https://i.postimg.cc/JzSP5qM6/Untitled2431-20251024105528.png" width="390">
+ <img src="https://i.postimg.cc/L83RwN8j/Untitled2431-20251024111941.png" width="690">
 
  <div align='center'> 
 
