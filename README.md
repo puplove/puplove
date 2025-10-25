@@ -1,6 +1,6 @@
 <div align='center'>
  
-![](https://komarev.com/ghpvc/?username=wandering-eye&label=stalkers&abbreviated=trueey&color=db1714)
+![](https://komarev.com/ghpvc/?username=wandering-eye&label=stalkers&=trueey&color=db1714)
 
  <img src="https://i.postimg.cc/KvjW7fd3/Untitled2431-20251024120512.png" width="490">
 
