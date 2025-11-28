@@ -1,8 +1,8 @@
 <div align='center'>
  
-![](https://komarev.com/ghpvc/?username=wandering-eye&label=📞&=trueey&color=000000)
+![](https://komarev.com/ghpvc/?username=wandering-eye&label=📺&=trueey&color=000000)
 
- <img src="https://i.postimg.cc/VLJvMXBW/IMG-1061.jpg" width="490">
+ <img src="https://i.postimg.cc/fy2NJMWj/IMG-1346.jpg" width="490">
 
  <div align='center'> 
 
