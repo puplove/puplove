@@ -5,7 +5,7 @@
 
 ac : sejifufufufu on tt
 
- <img src="https://i.postimg.cc/JtCkfNbn/IMG-0405.jpg" width="490">
+ <img src="https://i.postimg.cc/JtCkfNbn/IMG-0405.jpg" width="290">
 
  <div align='center'> 
 
