@@ -1,6 +1,6 @@
 <div align='center'>
 
-![](https://komarev.com/ghpvc/?username=wandering-eye&label=📺&=trueey&color=000000)
+![](https://komarev.com/ghpvc/?username=wandering-eye&label=🍲&=trueey&color=ab3829)
 
 
 ac : sejifufufufu on tt
