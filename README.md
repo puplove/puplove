@@ -9,5 +9,5 @@ ac : sejifufufufu on tt
 
  <div align='center'> 
 
- [ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/bylerthings) ![]() ![]() ![]() ![]() ![]() [prns](https://pronouns.cc/@clemintine)
+ [ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/bylerthings) ![]() ![]() ![]() ![]() ![]() [prns](https://pronouns.cc/@clemintine)  ![]() ![]() ![]() ![]() ![]() [guns.lol](https://guns.lol/miwi)
 
