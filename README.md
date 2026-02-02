@@ -10,5 +10,5 @@ ac : sejifufufufu on tt
 
  <div align='center'> 
 
- [ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/bylerthings) ![]() ![]() ![]() ![]() ![]() [guns.lol](https://guns.lol/miwi)
+ [ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/-byler) ![]() ![]() ![]() ![]() ![]() [guns.lol](https://guns.lol/miwi)
 
