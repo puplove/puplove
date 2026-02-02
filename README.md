@@ -1,12 +1,10 @@
 <div align='center'>
 
-![](https://komarev.com/ghpvc/?username=wandering-eye&label=bylers&=trueey&color=000000)
-Hey guys
+![](https://i.postimg.cc/CLnTXr7y/68747470733a2f2f66696c652e67617264656e2f615857655874506774676c53687352332f77756475666172742e706e67.png) 
 
 
-ac : sejifufufufu on tt
 
- <img src="https://i.postimg.cc/hPpp0chh/IMG-0431.jpg" width="290">
+
 
  <div align='center'> 
 
