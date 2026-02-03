@@ -1,6 +1,6 @@
 <div align='center'>
 
-![](https://komarev.com/ghpvc/?username=wandering-eye&label=bylers&color=5beb63)
+![](https://komarev.com/ghpvc/?username=wandering-eye&label=bylers&style=plastic&color=48a9c7)
  
  <img src="https://i.postimg.cc/CLnTXr7y/68747470733a2f2f66696c652e67617264656e2f615857655874506774676c53687352332f77756475666172742e706e67.png" width = "270">
 
