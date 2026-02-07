@@ -18,7 +18,7 @@
   
 ( ˘͈ ᵕ ˘͈♡)
 
- <img src="https://i.postimg.cc/fRjdXKWk/IMG-5002.jpg" width = "270">
+ <img src="https://i.postimg.cc/SNcDYMn6/Untitled152-20260207135314.png" width = "270">
  
 <div align='center'>
  
