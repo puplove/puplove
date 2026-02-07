@@ -14,8 +14,12 @@
   
  @flowerboy @scottpiIgrim @boyskissing @eddisode @vysters me @itadei @cursedtides @frankenstel
 <div align='center'>
+ <div align='center'> 
+  
+( ˘͈ ᵕ ˘͈♡)
 
  <img src="https://i.postimg.cc/fRjdXKWk/IMG-5002.jpg" width = "270">
+ 
 <div align='center'>
  
  me @fIowerboy and @vysters
