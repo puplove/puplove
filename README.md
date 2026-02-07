@@ -22,7 +22,7 @@
  
 <div align='center'>
  
- me @fIowerboy and @vysters
+ me @vysters and @fIowerboy
 
 [ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/-byler) ![]() ![]() ![]() ![]() ![]() [guns.lol](https://guns.lol/miwi)
 
