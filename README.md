@@ -1,7 +1,7 @@
 <div align='center'>
 
 ( ˶ˆᗜˆ˵ )
-
+semi active at tha moment
 
 ![](https://komarev.com/ghpvc/?username=wandering-eye&label=bylers&style=plastic&color=48a9c7)
  
