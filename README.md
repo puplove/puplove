@@ -5,14 +5,13 @@ semi active at tha moment
 
 ![](https://komarev.com/ghpvc/?username=wandering-eye&label=bylers&style=plastic&color=48a9c7)
  
- <img src="https://i.postimg.cc/GmKzcytt/Untitled25-20260206012918.png" width = "270">
+ <img src="https://i.postimg.cc/d0x9LGXy/IMG-0834.jpg" width = "270">
 
 
 
 
  <div align='center'> 
-  
- piggy gc
+  usually in party chat
 <div align='center'>
  <div align='center'> 
  
