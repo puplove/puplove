@@ -5,7 +5,7 @@ semi active at tha moment
 
 ![](https://komarev.com/ghpvc/?username=wandering-eye&label=bylers&style=plastic&color=48a9c7)
  
- <img src="https://i.postimg.cc/YSd2FYPB/image.png" width = "270">
+ <img src="https://i.postimg.cc/638QnQgY/IMG-1557.gif" width = "270">
 
 
 
