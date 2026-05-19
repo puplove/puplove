@@ -16,5 +16,5 @@ semi active at tha moment
  <div align='center'> 
  
 
-[ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/myels) ![]() ![]() ![]() ![]() ![]() [guns.lol](https://guns.lol/thadzi) ![]() ![]() ![]() ![]() ![]()
+[ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/myels) ![]() ![]() ![]() ![]() ![]() [guns.lol](https://guns.lol/thadzi) ![]() ![]() ![]() ![]() ![]() [trio](https://rentry.co/-poly)
 
